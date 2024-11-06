@@ -5,6 +5,6 @@ Eu não ouvir direitooo.
 
 - Estaaaamos capitão!!!
 
-Ooooooooooooooohhh!!
+Oooooooooooooooohhh!! 
 
 
